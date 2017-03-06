@@ -7,10 +7,10 @@ And so, I am not ready to meet you yet. And I believe now that for our relations
 When we meet, I expect both of us to share the following accomplished dreams, traits, and having shared interests would be great.
 
 Accomplished Dreams (Required)-
->Created Software/Hardware company to turn their ideas into reality.
->Giving the best in everything that they do, from waking up every morning to learning, working, and more.
->Healthy body and healthy posture.
->Ability to confidently speak, lead, listen in public, groups, and connect with other human beings.
+-Created Software/Hardware company to turn their ideas into reality.
+-Giving the best in everything that they do, from waking up every morning to learning, working, and more.
+-Healthy body and healthy posture.
+-Ability to confidently speak, lead, listen in public, groups, and connect with other human beings.
 
 Traits (Required) -
 -Calm, confident. Non judging and empathetic. Still, we try to bring the best out of ourselves, our friends, our family, and others with a calm manner. 
@@ -39,7 +39,9 @@ If I manage to find you in real life, then I'll close this file as I won't be ne
 
 Now, some may wonder, you're only expecting perfect. What happened to for better or for worse? I am not a judgemental person. For me, and I for you my future dear, take challenges with a smile. There is no shame in messing up as long as you have given it your best.
 
-##########
+
+
+______________________________
 Am I ready to meet you? False.
 
 My Progress -
