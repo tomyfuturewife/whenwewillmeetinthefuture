@@ -7,6 +7,7 @@ And so, I am not ready to meet you yet. And I believe now that for our relations
 When we meet, I expect both of us to share the following accomplished dreams, traits, and having shared interests would be great.
 
 Accomplished Dreams (Required)-
+
 !Created Software/Hardware company to turn their ideas into reality.
 !Giving the best in everything that they do, from waking up every morning to learning, working, and more.
 !Healthy body and healthy posture.
@@ -15,23 +16,23 @@ Accomplished Dreams (Required)-
 Traits (Required) -
 !Calm, confident. Non judging and empathetic. Still, we try to bring the best out of ourselves, our friends, our family, and others with a calm manner. 
 !Clear communicator of desires, wants, dislikes, etc.
--Nonjudgemental of physical traits that cannot be changed. And judgemental on things that can be changed.
--Doesn't use hard drugs and realizes that various recreational activities (video games, partying, etc.) are fun but should only be done only so often.
--Having good life habits that no longer need conscious thought but come automatically (being organized, waking up early, eating healthy, etc.)
--Respect for the lives and opinions of others.
--Does not smoke.
+!Nonjudgemental of physical traits that cannot be changed. And judgemental on things that can be changed.
+!Doesn't use hard drugs and realizes that various recreational activities (video games, partying, etc.) are fun but should only be done only so often.
+!Having good life habits that no longer need conscious thought but come automatically (being organized, waking up early, eating healthy, etc.)
+!Respect for the lives and opinions of others.
+!Does not smoke.
 
 Career Interests (Very Important, I want to be able to work and learn with you.)-
--Software, hardware, mechanics, business, philanthropy.
+!Software, hardware, mechanics, business, philanthropy.
 
 General Interests (Not required, but important)-
--Cooking
--Travelling
--Fitness Events (Marathons, Triathalons,
--Physical Sports/Activities (Soccer, badminton, hopefully!)
--Having a family in the future.
--Pets/Animals
--Atheist
+!Cooking
+!Travelling
+!Fitness Events (Marathons, Triathalons,
+!Physical Sports/Activities (Soccer, badminton, hopefully!)
+!Having a family in the future.
+!Pets/Animals
+!Atheist
 
 When I am ready and at the point in life where I have become who I wanted to be and doing what I want to be doing, then I'll indicate below that I am. If you are too, then message this account that you have also done the following. I will not be checking this file every day. I will check at the beginning of every month to see you are ready to meet me. And you should do the same as well (unless you meet the one in person). 
 
